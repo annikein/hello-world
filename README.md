@@ -7,6 +7,6 @@ Pikku Mallan sukat oli aina makkaralla.
 naureskeli veli.
 
 Malla meni kangaskauppaan sukkanauhat osti.
-Nillä pikku malla sukat aivan ylös nosti.
+Niillä pikku Malla sukat aivan ylös nosti.
 "Hah hah haa, katsokaa, sirosääri prinsessaa!", 
 ihmetteli veli.
